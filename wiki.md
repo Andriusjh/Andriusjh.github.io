@@ -1,5 +1,6 @@
 # Urban Sustainability in Seattle & Chicago
-![Alt Text](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.thezebra.com%2Fresources%2Fhome%2Fwhat-is-a-sustainable-city%2F&psig=AOvVaw210Oe_tEP_6B1oENif4L1b&ust=1737061597040000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCMien-3Q-IoDFQAAAAAdAAAAABAE)
+![Urban Sustainability](https://www.construction21.org/data/sources/users/29448/20220617024008-photo1.jpg)
+
 
 Urban sustainability is a critical strategy in the fight against climate change and its ever-growing negative effects. Chicago’s focus on green spaces and integrated urban design highlights how large metro areas can increase sustainability while improving the quality of life for its residents. By comparison, Seattle’s public transit focus and grassroots environmentalism demonstrate preserving natural beauty while reducing reliance on cars. Despite these efforts, both cities face challenges, such as the displacement of marginalized communities and rising property values, underscoring a need for equitable urban planning.
 
